@@ -1,3 +1,5 @@
+The world is a beautiful exhibit of the Creator's wisdom and kindliness. Click [HERE](https://hashem.com/) to visit a website with more details.
+
 You have entered into the world of a secret agent.
 If you used to be a Drill Master, you should aspire to become 
 a [White Tiger](https://play.google.com/store/apps/details?id=com.linecorp.LGRGS) instead.
